@@ -1,1 +1,0 @@
-# ondrejspilka.githubpages.io
